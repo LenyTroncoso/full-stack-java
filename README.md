@@ -1,2 +1,2 @@
-# leny.troncoso.github.io
+# lenytroncoso.github.io
 talento digital 2022
